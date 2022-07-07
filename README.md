@@ -1,4 +1,4 @@
-- Hi, I’m @jawachipcookie
+- Hi, I’m Vishesh Jawa
 - I’m interested in codiong and making stuff that helps people 
 - Currently i'm a freshman in electronic and Computer engineering
 - reach me on my Instagram - @vishesh.jawa
